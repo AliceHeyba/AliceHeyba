@@ -14,7 +14,7 @@ There are so many transferable skills I take from my sales journey, but the key 
 
 When I’m not thinking about coding or hotels you’ll find me contemplating about one of the following:
 - When does the next season of Black Mirror finally start?
-- Why isn’t the 70s boardgame Mastermind a staple in every 2022 household?
+- Why isn’t the 70s boardgame Mastermind a staple in every 2023 household?
 - Who else can I recommend Hannah Fry’s “Hello World” book to?
 - How can I better memorize the step sequence of my tap dance routine?
 - Which glaze do I want to use for my latest pottery project?
